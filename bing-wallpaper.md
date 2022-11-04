@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-05 | [阿赫雷湖畔的泰莫特罗萨克斯城堡酒店，苏格兰 (© Fortunato Gatto/eStock Photo)](https://global.bing.com/th?id=OHR.Trossachs_ZH-CN9299955040_UHD.jpg) 
+
 2022-11-02 | [慕纳尔的茶园，印度喀拉拉邦 (© Mazur Travel/Shutterstock)](https://global.bing.com/th?id=OHR.TeaPlantationsMunnar_ZH-CN7007323849_UHD.jpg) 
 
 2022-10-28 | [Bridge of Sighs in Venice, Italy (© Doug Pearson/Alamy)](https://cn.bing.com/th?id=OHR.BridgeofSighs_EN-US5335369208_UHD.jpg) 
