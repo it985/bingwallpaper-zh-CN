@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-04 | [乞力马扎罗山附近的大象，安波塞利国家公园，肯尼亚 (© Diana Robinson Photography/Getty Images)](https://global.bing.com/th?id=OHR.KilimanjaroElephants_ZH-CN3779609103_UHD.jpg) 
+
 2022-12-03 | [迈阿密海滩海洋大道，美国佛罗里达州 (© Matteo Colombo/Getty Images)](https://global.bing.com/th?id=OHR.MiamiDT_ZH-CN3528760113_UHD.jpg) 
 
 2022-11-28 | [火星（© NASA/Alamy）](https://global.bing.com/th?id=OHR.RedPlanetDay_ZH-CN4913018041_UHD.jpg) 
