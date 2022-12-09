@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-10 | [玻利维亚的乌尤尼盐沼 (© Theo Allofs/Minden Pictures)](https://global.bing.com/th?id=OHR.SaltDesert_ZH-CN4728398785_UHD.jpg) 
+
 2022-12-09 | [多弗勒山-松达尔国家公园的麝牛与她的宝宝，挪威 (© Robert Haasmann/Minden Pictures)](https://global.bing.com/th?id=OHR.NorwayMuskox_ZH-CN6137934745_UHD.jpg) 
 
 2022-12-05 | [古瓦哈提的竹子，印度阿萨姆邦 (© Page Bazar/500px/Getty Images)](https://global.bing.com/th?id=OHR.BambooTreesIndia_ZH-CN3943852151_UHD.jpg) 
