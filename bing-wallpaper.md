@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-13 | [海峡群岛国家公园的巨藻，美国加利福尼亚州 (© Brandon Cole Images/Shutterstock)](https://global.bing.com/th?id=OHR.Pneumatocysts_ZH-CN5721988566_UHD.jpg) 
+
 2023-01-12 | [博斯普鲁斯海峡的如梅利堡垒，土耳其伊斯坦布尔 (© Drone in Wonderland/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.RumeliHisari_ZH-CN0185820275_UHD.jpg) 
 
 2023-01-11 | [戈德雷维灯塔，英国康沃尔郡 (© Paul Nash/Shutterstock)](https://global.bing.com/th?id=OHR.GodrevyRocks_ZH-CN0051118926_UHD.jpg) 
