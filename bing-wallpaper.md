@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-25 | [位于阿伯费尔迪桦树林中的罗伯特·彭斯雕像, 苏格兰 (© Dennis Barnes/Getty Images)](https://global.bing.com/th?id=OHR.BirksofAberfeldy_ZH-CN7810226692_UHD.jpg) 
+
 2023-01-24 | [多洛米蒂山谷中的科莱圣卢恰小镇，意大利 (© mauritius images GmbH/Alamy)](https://global.bing.com/th?id=OHR.ColleSantaLucia_ZH-CN7638164714_UHD.jpg) 
 
 2023-01-23 | [复活节岛上的摩艾石像，智利 (© Karine Aigner/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SunriseMoai_ZH-CN7413178404_UHD.jpg) 
