@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-02 | [高地陶恩国家公园内的高山土拨鼠，奥地利 (© Michaela Walch/Alamy)](https://global.bing.com/th?id=OHR.GroundhogThree_ZH-CN6720558481_UHD.jpg) 
+
 2023-02-01 | [皮埃尔丰城堡，皮卡第大区，法国 (© Hemis/Alamy)](https://global.bing.com/th?id=OHR.SunriseCastle_ZH-CN6235928386_UHD.jpg) 
 
 2023-01-31 | [南非自然保护区的斑马 (© Richard Du Toit/Minden Pictures)](https://global.bing.com/th?id=OHR.ZebraTrio_ZH-CN5902552401_UHD.jpg) 
