@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-05 | [毛茸茸又可爱的山兔 (© Ben Hall/Minden Pictures)](https://global.bing.com/th?id=OHR.YearRabbit_ZH-CN2751166096_UHD.jpg) 
+
 2023-02-04 | [永福樱花园，福建省龙岩市, 中国 (© SEN LI/Getty Images)](https://global.bing.com/th?id=OHR.Lichun2023_ZH-CN7842399047_UHD.jpg) 
 
 2023-02-03 | [费尔蒙芳堤娜城堡酒店，魁北克省，加拿大 (© Romiana Lee/Shutterstock)](https://global.bing.com/th?id=OHR.QuebecFrontenac_ZH-CN9519096458_UHD.jpg) 
