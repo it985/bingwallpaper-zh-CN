@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-04 | [通往皮库山的道路，葡萄牙 (© Marco Bottigelli/Getty Images)](https://global.bing.com/th?id=OHR.PicoVolcano_ZH-CN6865997792_UHD.jpg) 
+
 2023-03-03 | [斯皮尔德拉的虎鲸，挪威 (© Alex Mustard/Minden Pictures)](https://global.bing.com/th?id=OHR.OrcaNorway_ZH-CN6101327628_UHD.jpg) 
 
 2023-03-02 | [内格拉廷湖，格拉纳达，西班牙 (© Andres Martinez Olmedo/Getty Images)](https://global.bing.com/th?id=OHR.NegratinSpain_ZH-CN5916944876_UHD.jpg) 
