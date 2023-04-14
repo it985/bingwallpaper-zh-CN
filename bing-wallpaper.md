@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-15 | [从纳哈加尔城堡鸟瞰斋浦尔，印度 (© Sean3810/iStock/Getty Images Plus)](https://global.bing.com/th?id=OHR.NahargarhFort_ZH-CN7681434372_UHD.jpg) 
+
 2023-04-14 | [红海星, 地中海 (© Hans Leijnse/Minden Pictures)](https://global.bing.com/th?id=OHR.RedSeaStars_ZH-CN6243743747_UHD.jpg) 
 
 2023-04-13 | [斯诺登尼亚国家公园，威尔士，英国 (© Sebastian Wasek/eStock Photo)](https://global.bing.com/th?id=OHR.SnowdoniaNational_ZH-CN7415540950_UHD.jpg) 
