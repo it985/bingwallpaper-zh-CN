@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-16 | [阿德莱德国际风筝节，澳大利亚 (© Andrey Moisseyev/Alamy)](https://global.bing.com/th?id=OHR.KiteDay_ZH-CN7813901578_UHD.jpg) 
+
 2023-04-15 | [从纳哈加尔城堡鸟瞰斋浦尔，印度 (© Sean3810/iStock/Getty Images Plus)](https://global.bing.com/th?id=OHR.NahargarhFort_ZH-CN7681434372_UHD.jpg) 
 
 2023-04-14 | [红海星, 地中海 (© Hans Leijnse/Minden Pictures)](https://global.bing.com/th?id=OHR.RedSeaStars_ZH-CN6243743747_UHD.jpg) 
