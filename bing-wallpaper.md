@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-20 | [克雷斯特德比特山上方的月食，科罗拉多州，美国 (© Mengzhonghua Photography/Getty Images)](https://global.bing.com/th?id=OHR.CrestedButteEclispe_ZH-CN5715446670_UHD.jpg) 
+
 2023-04-19 | [褐头凤鹛 (© Staffan Widstrand/Minden Pictures)](https://global.bing.com/th?id=OHR.TaiwanYuhina_ZH-CN6541884178_UHD.jpg) 
 
 2023-04-18 | [马丘比丘，秘鲁 (© Dora Dalton/Getty Images)](https://global.bing.com/th?id=OHR.MPPUnesco_ZH-CN8076198158_UHD.jpg) 
