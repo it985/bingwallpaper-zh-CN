@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-23 | [日出时分薄雾笼罩下的薰衣草田，印度 (© Amith Nag Photography/Getty Images)](https://global.bing.com/th?id=OHR.Honnavaralavenderfields_ZH-CN8054655091_UHD.jpg) 
+
 2023-04-22 | [岛屿灰狐，海峡群岛国家公园，美国加利福尼亚州 (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.EarthDayFox_ZH-CN7926350207_UHD.jpg) 
 
 2023-04-21 | [普罗奇达岛，意大利 (© Sean Pavone/Shutterstock)](https://global.bing.com/th?id=OHR.ProcidaItaly_ZH-CN7712975930_UHD.jpg) 
