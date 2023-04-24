@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-25 | [阿德利企鹅 (© David Merron Photography/Getty Images)](https://global.bing.com/th?id=OHR.AdelieWPD_ZH-CN8434233391_UHD.jpg) 
+
 2023-04-24 | [巴伐利亚森林酒窖，德国 (© Andreas_Zerndl/Getty Images)](https://global.bing.com/th?id=OHR.FranconianWineCellar_ZH-CN8234719750_UHD.jpg) 
 
 2023-04-23 | [日出时分薄雾笼罩下的薰衣草田，印度 (© Amith Nag Photography/Getty Images)](https://global.bing.com/th?id=OHR.Honnavaralavenderfields_ZH-CN8054655091_UHD.jpg) 
