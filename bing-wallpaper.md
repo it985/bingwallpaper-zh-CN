@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-26 | [大雕鸮幼崽 (© Michael Morse/Getty Images)](https://global.bing.com/th?id=OHR.GHOAudubonDay_ZH-CN8605905801_UHD.jpg) 
+
 2023-04-25 | [阿德利企鹅 (© David Merron Photography/Getty Images)](https://global.bing.com/th?id=OHR.AdelieWPD_ZH-CN8434233391_UHD.jpg) 
 
 2023-04-24 | [巴伐利亚森林酒窖，德国 (© Andreas_Zerndl/Getty Images)](https://global.bing.com/th?id=OHR.FranconianWineCellar_ZH-CN8234719750_UHD.jpg) 
