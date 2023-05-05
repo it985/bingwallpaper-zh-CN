@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-06 | [大麦和矢车菊, 诺德豪森, 德国 (© Mandy Tabatt/Getty Images)](https://global.bing.com/th?id=OHR.Kornblume_ZH-CN0344238832_UHD.jpg) 
+
 2023-05-05 | [普埃布拉天主堂和波波卡特佩特火山，普埃布拉，墨西哥 (© Radius Images/Shutterstock)](https://global.bing.com/th?id=OHR.Popocatepetl_ZH-CN5483138337_UHD.jpg) 
 
 2023-05-04 | [蒂卡尔的玛雅遗址，危地马拉 (© THP Creative/Getty Images)](https://global.bing.com/th?id=OHR.RebelBase_ZH-CN0484516261_UHD.jpg) 
