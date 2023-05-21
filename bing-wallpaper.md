@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-22 | [阿雷纳尔火山，蒙泰韦尔德，哥斯达黎加 (© Kevin Wells/Getty Images)](https://global.bing.com/th?id=OHR.BiodiverseCostaRica_ZH-CN5524154131_UHD.jpg) 
+
 2023-05-21 | [塞纳河，巴黎，法国 (© StockByM/Getty Images)](https://global.bing.com/th?id=OHR.PontdArcole_ZH-CN5348049357_UHD.jpg) 
 
 2023-05-20 | [谢菲尔德的欧洲蜜蜂, 英格兰 (© Deborah Vernon/Alamy)](https://global.bing.com/th?id=OHR.EuropeanHoneybee_ZH-CN5191293837_UHD.jpg) 
