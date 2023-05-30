@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-31 | [海獭宝宝，威廉王子湾，美国阿拉斯加州 (© Donald M. Jones/Minden Pictures)](https://global.bing.com/th?id=OHR.WorldOtterDay_ZH-CN8607141093_UHD.jpg) 
+
 2023-05-30 | [埃莫海滩，玛丽埃塔斯群岛，巴亚尔塔港，墨西哥 (© ferrantraite/Getty Images)](https://global.bing.com/th?id=OHR.HiddenBeach_ZH-CN8410568637_UHD.jpg) 
 
 2023-05-29 | [萨克马兰大湾，瓜德罗普岛国家公园，小安的列斯群岛 (© Hemis/Alamy)](https://global.bing.com/th?id=OHR.Antilles_ZH-CN8267285876_UHD.jpg) 
