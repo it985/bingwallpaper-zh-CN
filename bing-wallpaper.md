@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-02 | [沙丘中的南非剑羚，纳米比亚 (© Sergey Gorshkov/Alamy)](https://global.bing.com/th?id=OHR.GemsbokNamibia_ZH-CN0963988839_UHD.jpg) 
+
 2023-06-01 | [大堡礁的航拍图，澳大利亚 (© AirPano LLC/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.ReefAwareness_ZH-CN8840949729_UHD.jpg) 
 
 2023-05-31 | [海獭宝宝，威廉王子湾，美国阿拉斯加州 (© Donald M. Jones/Minden Pictures)](https://global.bing.com/th?id=OHR.WorldOtterDay_ZH-CN8607141093_UHD.jpg) 
