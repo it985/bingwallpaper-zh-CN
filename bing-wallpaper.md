@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-24 | [芽富湾，芽庄，越南 (© Thang Tat Nguyen/Getty Images)](https://global.bing.com/th?id=OHR.NhaTrang_ZH-CN5834700560_UHD.jpg) 
+
 2023-06-23 | [帝王蝶在野花中取食 (© bookguy/Getty Images)](https://global.bing.com/th?id=OHR.PollinatorMonarch_ZH-CN5556988827_UHD.jpg) 
 
 2023-06-22 | [中国传统节日端午节 (© timekeep/Shutterstock)](https://global.bing.com/th?id=OHR.DragonBoatFestival2023_ZH-CN5255671687_UHD.jpg) 
