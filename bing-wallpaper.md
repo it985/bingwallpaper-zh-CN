@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-27 | [塞多纳，亚利桑那州，美国 (© Jonathan Ross/Getty Images)](https://global.bing.com/th?id=OHR.SedonaSunset_ZH-CN6289462383_UHD.jpg) 
+
 2023-06-26 | [维朗德里城堡及花园，卢瓦尔河谷，法国 (© VLADJ55/Shutterstock)](https://global.bing.com/th?id=OHR.VillandryGarden_ZH-CN6140359139_UHD.jpg) 
 
 2023-06-25 | [佩特拉的宝库，约旦 (© WitthayaP/Shutterstock)](https://global.bing.com/th?id=OHR.PetraTreasury_ZH-CN6007151900_UHD.jpg) 
