@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-28 | [韦尔纳扎，五渔村，意大利 (© Rubin Versigny/Getty Images)](https://global.bing.com/th?id=OHR.ItalyCinqueTerre_ZH-CN6495965228_UHD.jpg) 
+
 2023-06-27 | [塞多纳，亚利桑那州，美国 (© Jonathan Ross/Getty Images)](https://global.bing.com/th?id=OHR.SedonaSunset_ZH-CN6289462383_UHD.jpg) 
 
 2023-06-26 | [维朗德里城堡及花园，卢瓦尔河谷，法国 (© VLADJ55/Shutterstock)](https://global.bing.com/th?id=OHR.VillandryGarden_ZH-CN6140359139_UHD.jpg) 
