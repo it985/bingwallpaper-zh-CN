@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-29 | [巴尼亚群岛，苏门答腊，印度尼西亚 (© fbxx/Getty Imagesz)](https://global.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_UHD.jpg) 
+
 2023-06-28 | [韦尔纳扎，五渔村，意大利 (© Rubin Versigny/Getty Images)](https://global.bing.com/th?id=OHR.ItalyCinqueTerre_ZH-CN6495965228_UHD.jpg) 
 
 2023-06-27 | [塞多纳，亚利桑那州，美国 (© Jonathan Ross/Getty Images)](https://global.bing.com/th?id=OHR.SedonaSunset_ZH-CN6289462383_UHD.jpg) 
