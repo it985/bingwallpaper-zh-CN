@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-12 | [“我爱你”海滩自然保护区的沙洲，桑给巴尔，坦桑尼亚 (© Lubos Paukeje/Alamy)](https://global.bing.com/th?id=OHR.NakupendaBeach_ZH-CN7913805608_UHD.jpg) 
+
 2023-07-11 | [Hong Kong SAR (© leungchopan/Getty Images)](https://global.bing.com/th?id=OHR.WorldPopDay_ZH-CN7074706912_UHD.jpg) 
 
 2023-07-10 | [萨默塞特郡的薰衣草田，英国 (© Doug Chinnery/Getty Images)](https://global.bing.com/th?id=OHR.SomersetLavender_ZH-CN5823464763_UHD.jpg) 
