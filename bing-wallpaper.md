@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-30 | [帕卢斯的农田，华盛顿州，美国 (© EJ-J/Getty Images)](https://global.bing.com/th?id=OHR.PalouseHills_ZH-CN6864015897_UHD.jpg) 
+
 2023-07-29 | [孟加拉虎，兰坦波尔国家公园，印度 (© Andy Rouse/Minden Pictures)](https://global.bing.com/th?id=OHR.TigerIndia_ZH-CN6657629375_UHD.jpg) 
 
 2023-07-28 | [圣布拉斯群岛，巴拿马 (© bgremler/Shutterstock)](https://global.bing.com/th?id=OHR.SanBlasIslands_ZH-CN6320572106_UHD.jpg) 
