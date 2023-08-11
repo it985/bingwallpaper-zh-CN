@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-12 | [大象家族，安波塞利国家公园，肯尼亚 (© Ibrahim Suha Derbent/Getty Images)](https://global.bing.com/th?id=OHR.ThreeElephants_ZH-CN8708711085_UHD.jpg) 
+
 2023-08-11 | ['朱庇特艺术园的“入口”水池，爱丁堡，苏格兰 (© Owen Humphreys/PA Images/Alamy)](https://global.bing.com/th?id=OHR.JupiterArtland_ZH-CN7955790073_UHD.jpg) 
 
 2023-08-10 | [马赛马拉的一头狮子，肯尼亚 (© Federico Veronesi/Minden Pictures)](https://global.bing.com/th?id=OHR.WorldLionDay_ZH-CN0525835107_UHD.jpg) 
