@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-24 | [鲨鱼鳍湾，达文波特，加利福尼亚州，美国 (© Jeff Lewis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SharkFinCove_ZH-CN4952934195_UHD.jpg) 
+
 2023-08-23 | [斯科加瀑布，冰岛 (© Maridav/Shutterstock)](https://global.bing.com/th?id=OHR.SkogafossWaterfall_ZH-CN4763253095_UHD.jpg) 
 
 2023-08-22 | [埃尔杰姆露天剧场，突尼斯 (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_UHD.jpg) 
