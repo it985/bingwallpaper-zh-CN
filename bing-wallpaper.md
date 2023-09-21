@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-22 | [马尔萨拉盐田，意大利 (© javarman3/Getty Images)](https://global.bing.com/th?id=OHR.MarsalaSalt_ZH-CN4943158328_UHD.jpg) 
+
 2023-09-21 | [诺贝尔和平中心内部，奥斯陆，挪威 (© Ilyas Ayub/Alamy)](https://global.bing.com/th?id=OHR.NobelNorway_ZH-CN9824054026_UHD.jpg) 
 
 2023-09-20 | [罗马风格的渡槽，阿卡迪亚公园，波兰 (© PATSTOCK/Getty Images)](https://global.bing.com/th?id=OHR.ArkadiaPark_ZH-CN9501056317_UHD.jpg) 
