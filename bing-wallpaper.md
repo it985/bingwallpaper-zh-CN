@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-09 | [弗里蒙特岩画，恐龙国家纪念碑，詹森，犹他州，美国 (© Dan Leeth/Alamy)](https://global.bing.com/th?id=OHR.FremontPetroglyph_ZH-CN5736573545_UHD.jpg) 
+
 2023-10-08 | [巨型蛤壳中的条纹蛸，苏拉威西海，印度尼西亚 (© Alex Mustard/Minden Pictures)](https://global.bing.com/th?id=OHR.OctoClam_ZH-CN5427646548_UHD.jpg) 
 
 2023-10-07 | [灰熊在卡特迈国家公园布鲁克斯瀑布捕捞鲑鱼，阿拉斯加州，美国 (© oksana.perkins/Shutterstock)](https://global.bing.com/th?id=OHR.GrizzlyFalls_ZH-CN5152476563_UHD.jpg) 
