@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-25 | [大阶梯埃斯卡兰特国家纪念区中的棉白杨树，犹他州，美国 (© Jeff Foott/Minden Pictures)](https://global.bing.com/th?id=OHR.GrandStaircase_ZH-CN5928937512_UHD.jpg) 
+
 2023-10-24 | [桑佩伦山上的菲泽尔城堡，匈牙利 (© ZGPhotography/Alamy)](https://global.bing.com/th?id=OHR.FuzerCastle_ZH-CN5485191349_UHD.jpg) 
 
 2023-10-23 | [塞勒斯堡的玉米迷宫，宾夕法尼亚州，美国 (© Alex Potemkin/Getty Images)](https://global.bing.com/th?id=OHR.PoconosMaze_ZH-CN4696904367_UHD.jpg) 
