@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-09 | [秋天的白桦树，德拉门，挪威 (© Baac3nes/Getty Images)](https://global.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_UHD.jpg) 
+
 2023-11-08 | [黄山的日落，安徽省，中国 (© Nantapon Pattamakijsakul/Getty Images)](https://global.bing.com/th?id=OHR.LiDong2023_ZH-CN5089092069_UHD.jpg) 
 
 2023-11-07 | [Kirkilai湖泊和瞭望塔，比尔扎伊地区公园，立陶宛 (© MNStudio/Shutterstock)](https://global.bing.com/th?id=OHR.KirkilaiTower_ZH-CN4058404632_UHD.jpg) 
