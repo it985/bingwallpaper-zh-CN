@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-22 | [大提顿国家公园，怀俄明州，美国 (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.SnakeRiverTeton_ZH-CN1213535303_UHD.jpg) 
+
 2023-11-21 | [英国诺福克海滩上的灰海豹幼崽 (© Vince Burton/Minden Pictures)](https://global.bing.com/th?id=OHR.HelloSeal_ZH-CN1064568368_UHD.jpg) 
 
 2023-11-20 | [科奇城堡，Tongwynlais，卡迪夫，威尔士，英国，欧洲 (© Billy Stock/robertharding/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.CastleCoch_ZH-CN0917284602_UHD.jpg) 
