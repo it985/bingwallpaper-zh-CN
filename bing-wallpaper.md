@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-26 | [布拉德盖特公园的小鹿，莱斯特郡，英国 (© Chris Bainbridge/Alamy)](https://global.bing.com/th?id=OHR.BradgateFallow_ZH-CN1852334581_UHD.jpg) 
+
 2023-11-25 | [托莱多，西班牙 (© Carlos Fernandez/Getty Images)](https://global.bing.com/th?id=OHR.TajoRiver_ZH-CN1752559204_UHD.jpg) 
 
 2023-11-24 | [奥林匹克国家公园霍河雨林中的苔藓大厅 ，华盛顿州，美国 (© James Randklev/Getty Images)](https://global.bing.com/th?id=OHR.HallofMosses_ZH-CN1565129809_UHD.jpg) 
