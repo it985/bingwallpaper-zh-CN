@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-10 | [林帕达恩湖，斯诺登尼亚国家公园， 威尔士 (© Joe Daniel Price/Getty Images)](https://global.bing.com/th?id=OHR.LlanberisSnowdoniaSunset_ZH-CN6682238671_UHD.jpg) 
+
 2023-12-09 | [原驼，冰川国家公园，阿根廷 (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://global.bing.com/th?id=OHR.PatagoniaGuanaco_ZH-CN6438038982_UHD.jpg) 
 
 2023-12-08 | [拉罗克港，圣克莱门特，泽西岛 (© Reinhard Schmid/Huber/eStock Photo)](https://global.bing.com/th?id=OHR.JerseyIsland_ZH-CN6224973235_UHD.jpg) 
