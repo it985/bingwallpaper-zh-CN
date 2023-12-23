@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-24 | [市政厅广场，塔尔图，爱沙尼亚 (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.EstoniaXmasEve_ZH-CN5870799404_UHD.jpg) 
+
 2023-12-23 | [��带企鹅，南桑威奇群岛，南大西洋 (© Jan Vermeer/Minden Pictures)](https://global.bing.com/th?id=OHR.FestivusPenguins_ZH-CN5191348531_UHD.jpg) 
 
 2023-12-22 | [天鹅泉湿地公园，伊犁，新疆，中国 (© 500px Asia/Getty images)](https://global.bing.com/th?id=OHR.WinterSolstice2023_ZH-CN4450201916_UHD.jpg) 
