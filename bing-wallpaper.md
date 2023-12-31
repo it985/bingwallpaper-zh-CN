@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-01 | [睡在雪地里的赤狐，阿布鲁佐，意大利 (© marco vancini/500px/Getty Images)](https://global.bing.com/th?id=OHR.SleepingFox_ZH-CN2622967726_UHD.jpg) 
+
 2023-12-31 | [帕那空奇里上空的烟花，碧武里府,泰国 (© noomcpk/Shutterstock)](https://global.bing.com/th?id=OHR.ThailandNewYears_ZH-CN2058192262_UHD.jpg) 
 
 2023-12-30 | [卡塞里格石圈，湖区国家公园 ，坎布里亚，英国 (© John Finney Photography/Getty Images)](https://global.bing.com/th?id=OHR.CastleriggStoneCircleUK_ZH-CN1174541384_UHD.jpg) 
