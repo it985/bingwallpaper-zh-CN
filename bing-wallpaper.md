@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-08 | [伊瓜苏大瀑布鸟瞰图，巴西 (© Nido Huebl/Shutterstock)](https://global.bing.com/th?id=OHR.IguazuFalls_ZH-CN4749837052_UHD.jpg) 
+
 2024-03-07 | [Roques de Benet，埃尔斯港自然公园，加泰罗尼亚，西班牙 (© Sergi Boixader/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.TarragonaSpain_ZH-CN5488361711_UHD.jpg) 
 
 2024-03-06 | [Wahclella Falls，哥伦比亚河峡谷，俄勒冈州，美国 (© Eric Vogt/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.WahclellaFalls_ZH-CN4932852217_UHD.jpg) 
