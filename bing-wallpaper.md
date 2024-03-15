@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-16 | [正在吃竹子的大熊猫，中国成都 (© Suzi Eszterhas/Minden Pictures)](https://global.bing.com/th?id=OHR.BambooPanda_ZH-CN8455481760_UHD.jpg) 
+
 2024-03-15 | [安沙波利哥沙漠州立公园，美国加利福尼亚州 (© Stephen Matera/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.AnzaBorregoBloom_ZH-CN8284458835_UHD.jpg) 
 
 2024-03-14 | [Wat Phra Ngam，大城府历史公园，泰国 (© boonchai wedmakawand/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.AyutthayaTree_ZH-CN8075870220_UHD.jpg) 
