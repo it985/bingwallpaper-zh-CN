@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-18 | [大象岩，古城欧拉，沙特阿拉伯 (© Lubo Ivanko/Shutterstock)](https://global.bing.com/th?id=OHR.ElephantRock_ZH-CN9293300383_UHD.jpg) 
+
 2024-03-17 | [圣菲尼安湾，凯里郡，爱尔兰 (© Atlantide Phototravel/Getty Images)](https://global.bing.com/th?id=OHR.StFiniansBay_ZH-CN8655586052_UHD.jpg) 
 
 2024-03-16 | [正在吃竹子的大熊猫，中国成都 (© Suzi Eszterhas/Minden Pictures)](https://global.bing.com/th?id=OHR.BambooPanda_ZH-CN8455481760_UHD.jpg) 
