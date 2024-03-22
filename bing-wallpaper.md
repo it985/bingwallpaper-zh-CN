@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-23 | [巴西亚马逊上空巨大的砧状云 (© NASA)](https://global.bing.com/th?id=OHR.AmazonClouds_ZH-CN0578911147_UHD.jpg) 
+
 2024-03-22 | [蓝泉，蒂怀霍步道，新西兰 (© Ian Beattie/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.WaikatoWater_ZH-CN0417438809_UHD.jpg) 
 
 2024-03-21 | [布恩迪国家公园，乌干达 (© Art Wolfe/DanitaDelimont.com)](https://global.bing.com/th?id=OHR.BwindiNationalForest_ZH-CN0436137473_UHD.jpg) 
