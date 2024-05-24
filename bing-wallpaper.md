@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-25 | [阿伊特本哈杜，摩洛哥 (© Grant Faint/Getty Images)](https://global.bing.com/th?id=OHR.MoroccoBenhaddou_ZH-CN8742267428_UHD.jpg) 
+
 2024-05-24 | [阿尼斯克洛峡谷，奥德萨和佩尔迪多山国家公园，韦斯卡，西班牙 (© Marisa Estivill/Shutterstock)](https://global.bing.com/th?id=OHR.OrdesaNationalPark_ZH-CN8545620273_UHD.jpg) 
 
 2024-05-23 | [印度星龟，斯里兰卡 (© Robin Chittenden/Minden Pictures)](https://global.bing.com/th?id=OHR.IndianStarTortoise_ZH-CN7177478610_UHD.jpg) 
