@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-13 | [雷吉斯坦广场的外立面马赛克，撒马尔罕，乌兹别克斯坦撒 (© da-kuk/Getty Images)](https://global.bing.com/th?id=OHR.RegistanUzbekistan_ZH-CN7850329702_UHD.jpg) 
+
 2024-06-12 | [大弯国家公园上空的银河，得克萨斯州，美国 (© wisanuboonrawd/Adobe Stock)](https://global.bing.com/th?id=OHR.BigBendMilkyWay_ZH-CN7709015605_UHD.jpg) 
 
 2024-06-11 | [热带稀树草原上的南非剑羚，博茨瓦纳大草原 (© Karine Aigner/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.GemsbokBotswana_ZH-CN7507199339_UHD.jpg) 
