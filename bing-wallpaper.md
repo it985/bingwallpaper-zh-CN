@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-16 | [赤狐父子，华盛顿，美国 (© Chase Dekker/Minden Pictures)](https://global.bing.com/th?id=OHR.RedFoxDad_ZH-CN4894022141_UHD.jpg) 
+
 2024-06-15 | [在纳扎雷冲浪的冲浪者，葡萄牙 (© Rui Caria/Getty Images)](https://global.bing.com/th?id=OHR.NazareWave_ZH-CN4575182192_UHD.jpg) 
 
 2024-06-14 | [佩姬湾灯塔，新斯科舍省，加拿大 (© Pugalenthi/Getty Images)](https://global.bing.com/th?id=OHR.PeggysCove_ZH-CN4221190894_UHD.jpg) 
