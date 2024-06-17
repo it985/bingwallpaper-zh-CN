@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-18 | [日出时的羽扇豆田和教堂，斯奈山半岛，冰岛 (© Matteo Colombo/Getty Images)](https://global.bing.com/th?id=OHR.LupinIceland_ZH-CN5329147708_UHD.jpg) 
+
 2024-06-17 | [绿顶辉蜂鸟与巨型蓟，穆埃尔特山，哥斯达黎加 (© adrian hepworth/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.HummingThistle_ZH-CN5057539905_UHD.jpg) 
 
 2024-06-16 | [赤狐父子，华盛顿，美国 (© Chase Dekker/Minden Pictures)](https://global.bing.com/th?id=OHR.RedFoxDad_ZH-CN4894022141_UHD.jpg) 
