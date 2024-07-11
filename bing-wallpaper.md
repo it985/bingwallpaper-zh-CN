@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-12 | [雷尼尔山国家公园的野花，华盛顿州，美国 (© RomanKhomlyak/Getty Images)](https://global.bing.com/th?id=OHR.RainierWildflowers_ZH-CN7392242353_UHD.jpg) 
+
 2024-07-11 | [甘吉，西西里岛，意大利 (© Andrea Caruso/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.GangiSicily_ZH-CN9086944081_UHD.jpg) 
 
 2024-07-10 | [领簇舌巨嘴鸟，哥斯达黎加 (© Juan Carlos Vindas/Getty Images)](https://global.bing.com/th?id=OHR.CollaredAracari_ZH-CN8787234462_UHD.jpg) 
