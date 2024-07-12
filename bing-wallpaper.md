@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-13 | [卡帕多西亚的童话烟囱和窑洞，土耳其 (© Storm Is Me/Shutterstock)](https://global.bing.com/th?id=OHR.CappadociaRocks_ZH-CN9283633861_UHD.jpg) 
+
 2024-07-12 | [雷尼尔山国家公园的野花，华盛顿州，美国 (© RomanKhomlyak/Getty Images)](https://global.bing.com/th?id=OHR.RainierWildflowers_ZH-CN7392242353_UHD.jpg) 
 
 2024-07-11 | [甘吉，西西里岛，意大利 (© Andrea Caruso/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.GangiSicily_ZH-CN9086944081_UHD.jpg) 
