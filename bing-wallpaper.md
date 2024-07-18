@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-19 | [河岸上的一只年轻美洲虎，潘塔纳尔，巴西 (© Tambako the Jaguar/Getty Images)](https://global.bing.com/th?id=OHR.YoungJaguar_ZH-CN2249923627_UHD.jpg) 
+
 2024-07-18 | [Coral reef in the Indian Ocean, Mayotte, France (© Gabriel Barathieu/Minden Pictures)](https://global.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_UHD.jpg) 
 
 2024-07-17 | [德国中世纪城市罗滕堡 (© kanuman/Getty Images)](https://global.bing.com/th?id=OHR.MedievalRothenburg_ZH-CN1522774136_UHD.jpg) 
