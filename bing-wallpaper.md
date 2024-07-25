@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-26 | [塞纳河上的新桥，巴黎，法国 (© f11photo/Getty Images)](https://global.bing.com/th?id=OHR.PontNeuf_ZH-CN3158359446_UHD.jpg) 
+
 2024-07-25 | [大烟山国家公园的森林小道，田纳西州，美国 (© putmanphoto/Getty Images)](https://global.bing.com/th?id=OHR.SmokyMountainTrail_ZH-CN4691667074_UHD.jpg) 
 
 2024-07-24 | [北约克郡的黑面羊羊群，英格兰 (© R A Kearton/Getty Images)](https://global.bing.com/th?id=OHR.SheepCousins_ZH-CN4262132476_UHD.jpg) 
