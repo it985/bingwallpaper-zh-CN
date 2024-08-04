@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-05 | [薰衣草田，赫特福德郡 ，英格兰，英国 (© George W Johnson/Getty Images)](https://global.bing.com/th?id=OHR.HertfordshireLavender_ZH-CN9771886404_UHD.jpg) 
+
 2024-08-04 | [黑斑羚和红嘴牛椋鸟，南非 (© Matrishva Vyas/Getty Images)](https://global.bing.com/th?id=OHR.ImpalaOxpecker_ZH-CN9652434873_UHD.jpg) 
 
 2024-08-03 | [天生三桥，重庆武隆岩溶国家地质公园，中国 (© Pav-Pro Photography Ltd/Shutterstock)](https://global.bing.com/th?id=OHR.WulongKarst_ZH-CN9386528384_UHD.jpg) 
