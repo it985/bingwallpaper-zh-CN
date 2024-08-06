@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-07 | [圣约瑟夫北码头内灯和外灯，密歇根州，美国 (© Kenneth Keifer/Getty Images)](https://global.bing.com/th?id=OHR.MichiganLighthouse_ZH-CN0581377136_UHD.jpg) 
+
 2024-08-06 | [莫洛基尼，毛伊岛，夏威夷，美国 (© Douglas Peebles/eStock Photo)](https://global.bing.com/th?id=OHR.MolokiniHawaii_ZH-CN0375050872_UHD.jpg) 
 
 2024-08-05 | [薰衣草田，赫特福德郡 ，英格兰，英国 (© George W Johnson/Getty Images)](https://global.bing.com/th?id=OHR.HertfordshireLavender_ZH-CN9771886404_UHD.jpg) 
