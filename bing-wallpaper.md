@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-22 | [海洋城日出时的鸟瞰图，马里兰州，美国 (© Kevin Olson/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.OceanCityMD_ZH-CN1876928284_UHD.jpg) 
+
 2024-08-21 | [纳斯卡鲣鸟，沃尔夫岛，加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Minden Pictures)](https://global.bing.com/th?id=OHR.NazcaBooby_ZH-CN1534931799_UHD.jpg) 
 
 2024-08-20 | [大提顿国家公园日出,怀俄明州,美国 (© Kurt Budliger/TANDEM Stills + Motion)](https://global.bing.com/th?id=OHR.TetonSunrise_ZH-CN1118823848_UHD.jpg) 
