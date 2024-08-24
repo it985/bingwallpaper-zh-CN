@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-25 | [急流湖的日出，冰川国家公园，蒙大拿州，美�� (© Jason Savage/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SwiftcurrentLake_ZH-CN1513761894_UHD.jpg) 
+
 2024-08-24 | [卡塔丁森林和水域国家纪念碑，佩诺布斯科特县，缅因州，美国 (© Cavan Images/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.KatahdinWoods_ZH-CN0748954905_UHD.jpg) 
 
 2024-08-23 | [帕侬蓝寺，武里南府，泰国 (© Banjongseal324/Getty Images)](https://global.bing.com/th?id=OHR.PrasatPhanom_ZH-CN0445884858_UHD.jpg) 
