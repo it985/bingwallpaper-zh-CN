@@ -31,7 +31,7 @@ public class Wallpaper {
      *
      * {"en-US", "zh-CN", "ja-JP", "en-IN", "pt-BR", "fr-FR", "de-DE", "en-CA", "en-GB", "it-IT", "es-ES", "fr-CA"};
      */
-    private static String[] regions =  {"en-US", "zh-CN"};
+    private static String[] regions =  {"zh-CN"};
     public static void main(String[] args) throws IOException {
         for (String region : regions) {
             String bingApi = String.format(BING_API_TEMPLATE, region);
@@ -64,7 +64,7 @@ public class Wallpaper {
 
     public static void changeConfig(String region) {
         region = region.toLowerCase();
-        if ("en-us".equalsIgnoreCase(region)) {
+        if ("zh-cn".equalsIgnoreCase(region)) {
             BingFileUtils.README_PATH = Paths.get("README.md");
             BingFileUtils.BING_PATH = Paths.get("bing-wallpaper.md");
             BingFileUtils.MONTH_PATH = Paths.get("picture/");
